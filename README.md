@@ -1,0 +1,2 @@
+My name is Bamigboye Adedokun. I am an energetic and polished young professional with experience and knowledge in Information Technology
+support, business development and groundbreaking competitive strategies. My work experience spans over 10 years in various departments
